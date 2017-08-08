@@ -13,7 +13,9 @@ Here’s a link to my general reel:
 
 
 
+
 https://www.behance.net/gallery/52344387/Steve-Marino-Director-Reel
+
 
 
 
@@ -21,13 +23,17 @@ Yes, while my current reel is geared towards funkier / mixed media work; that wa
 
 
 
+
 http://zanimation.tv/vimeo-video/before-after-reel/
+
 
 
 
 Additional work can be seen at this link, full spots from Live action, VFX, all types of animation, mixed media. Unique. Fun. Commercial, Broadcast, Music Video, Short and Long format.
 
+
 https://www.behance.net/stevemarin5b81
+
 
 
 
@@ -36,15 +42,20 @@ I am Currently looking for new challenges, & opportunities…
 Here's my Linkedin profile, for full resume, recommendations, etc: 
 
 
+
 https://www.linkedin.com/in/stevemarino/
+
 
 
 Don't hesitate to get in touch through email below: 
 
+
 steve.marino13@gmail.com
+
 
 or call directly: 646 298 6805
 
+ 
  
 Cheers,
 
